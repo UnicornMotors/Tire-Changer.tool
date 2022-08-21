@@ -22,3 +22,5 @@
 [The Key to Hand Mounting Car Tires](https://youtu.be/LWMrs-Yq-VI)
 
 [Science Behind Using Fire To Mount Car Tires](https://youtu.be/LWMrs-Yq-VI)
+
+[Tire change Tips & Tools](https://youtu.be/XjXmWzOdxzE)
