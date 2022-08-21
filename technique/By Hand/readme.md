@@ -22,3 +22,5 @@
 [MOUNTING A TIRE BY HAND! (TECHNIQUE)](https://youtu.be/DzUIIt9zlXM)
 
 [Science Behind Using Fire To Mount Car Tires](https://youtu.be/LWMrs-Yq-VI)
+
+[MOUNTING A TIRE BY HAND! (TECHNIQUE)](https://youtu.be/DzUIIt9zlXM)
