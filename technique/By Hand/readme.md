@@ -14,3 +14,5 @@
 [Seating a stubborn tire bead, no special tools, no flame](https://youtu.be/K_zBkMpnfz4)
 
 [The Key to Hand Mounting Car Tires](https://youtu.be/LWMrs-Yq-VI)
+
+[MOUNTING A TIRE BY HAND! (TECHNIQUE)](https://youtu.be/DzUIIt9zlXM)
