@@ -1,6 +1,8 @@
 # Favorite:
 - [NO DAMAGE Tire Mount Dismount Change Bar Build](https://youtu.be/_ODocXwHasY)
 
+- [Unlimited Tire Changer Duckhead attachment for Harbor Freight Motorcycle Tire Changer](https://youtu.be/0GUHrOox5W8)
+
 # Compare:
 - [Duckbill Comparison](https://youtu.be/upQmgWt8RBg)
 description:
