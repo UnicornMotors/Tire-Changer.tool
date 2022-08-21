@@ -10,3 +10,7 @@
 [how to mount a tire by hand](https://youtu.be/ro14HjAR6vA)
 
 [Tubeless Tire manual mounting](https://youtu.be/wIwg-hDkGlI)
+
+[Seating a stubborn tire bead, no special tools, no flame](https://youtu.be/K_zBkMpnfz4)
+
+[The Key to Hand Mounting Car Tires](https://youtu.be/LWMrs-Yq-VI)
