@@ -10,6 +10,8 @@
 
 [How to take a tire off the rim really easy / How to put a tire on a rim](https://youtu.be/veVlHq_sp-o)
 
+[DIY: Mount and balance a tire with a screw driver & a hammer](https://youtu.be/AbDg20jgJwo)
+
 # index:
 [How To Mount and Balance A Tire -EricTheCarGuy](https://youtu.be/8hOZXIr1ujE)
 
