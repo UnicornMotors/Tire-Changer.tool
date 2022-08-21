@@ -4,6 +4,8 @@
 [Change a car tire on a No-Mar scratch proof tire changer](https://youtu.be/Y3mPYtnl6Pg)
 
 # Favorite:
+[MOUNTING A TIRE BY HAND! (TECHNIQUE)](https://youtu.be/DzUIIt9zlXM)
+
 [How to Balance Your Car's Tires](https://youtu.be/LWMrs-Yq-VI)
 
 [How to take a tire off the rim really easy / How to put a tire on a rim](https://youtu.be/veVlHq_sp-o)
@@ -19,8 +21,4 @@
 
 [The Key to Hand Mounting Car Tires](https://youtu.be/LWMrs-Yq-VI)
 
-[MOUNTING A TIRE BY HAND! (TECHNIQUE)](https://youtu.be/DzUIIt9zlXM)
-
 [Science Behind Using Fire To Mount Car Tires](https://youtu.be/LWMrs-Yq-VI)
-
-[MOUNTING A TIRE BY HAND! (TECHNIQUE)](https://youtu.be/DzUIIt9zlXM)
