@@ -1,6 +1,8 @@
 # Top.Favorite!
 [The Key to Hand Mounting Car Tires](https://youtu.be/LWMrs-Yq-VI)
 
+[How to Balance Your Car's Tires](https://youtu.be/LWMrs-Yq-VI)
+
 # index:
 [How To Mount and Balance A Tire -EricTheCarGuy](https://youtu.be/8hOZXIr1ujE)
 
