@@ -7,4 +7,5 @@ Product: https://lucidautowerks.com/products/ultimate-manual-tire-changer-xl
 - [Part 4 of 4 Harbor Freight Tire change tool upgrade; Lucid AutoWerks](https://youtu.be/xA4bHJxRnok)
 
 official:
-- video: [Ultimate Manual Tire Changer Modifications](https://youtu.be/lvKGkh9U1Yo)
+- [Ultimate Manual Tire Changer Modifications](https://youtu.be/lvKGkh9U1Yo)
+- [DIY Ultimate Manual Tire Changer Attachment Builder Kit - Welding Instructions](https://youtu.be/R9UcgT1uPcM)
